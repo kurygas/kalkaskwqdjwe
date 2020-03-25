@@ -1,1 +1,1 @@
-# 8d.gkl-kemerovo.github.io
+# 8d-gkl.github.io
